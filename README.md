@@ -2,7 +2,7 @@
 
 
 
-In this life, no wahalla ✨ there's only 1 me and that's my personal power ✨ 
+✨ There's only 1 me and that's my personal power ✨ 
 
 You can engage me on the following topics:
 
@@ -13,7 +13,7 @@ You can engage me on the following topics:
 - 💬 Cloud Computing ...
 
 - 🏀 Basketball  ...
-- 
+ 
 - ⚡ Self Awareness & Improvement ...
 -->
 ##
